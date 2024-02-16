@@ -1,9 +1,10 @@
 LamichhaneAvishek/README.md 
+
 •Hi, I'm @Avishek Lamichhane 😍
 
 •I'm interested in cooding💥
 
-•I'm currently learning cooding 
+•I'm currently learning cooding 💻
 
 •I'm looking to collaborate on cooding project 
 
